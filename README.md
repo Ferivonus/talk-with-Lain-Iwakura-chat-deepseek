@@ -19,5 +19,5 @@ Talk with lain Iwakura computer app.
 
 ## disclaimer
 
-- do not use for porn.
+- do not use for child stuff.
 - do not use for seeking a mental health consultant. Find a friend and get help.
